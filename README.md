@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ayuusssh
+- 👀 I’m interested in coding for purpose
+- 🌱 I’m currently learning Programming
+- 💞️ I’m looking to collaborate on Real world projectd
+- 📫 reach me from linkdin 
